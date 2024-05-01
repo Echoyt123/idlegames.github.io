@@ -1,0 +1,2 @@
+# idlegames.github.io
+idjdidj
